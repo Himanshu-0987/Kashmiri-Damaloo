@@ -1,9 +1,13 @@
 Ingredients for 4 persons:-
 
 Potatoes (4 to 6)
+
 oil
+
 curds
+
 salt to taste
+
 Kashmiri Masalas:-
 1. Chillies
 2. Turmuric
